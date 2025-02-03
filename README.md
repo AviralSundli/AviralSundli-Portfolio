@@ -9,4 +9,5 @@ Note : The portfolio contains more than five pages. To view all pages, please cl
 Feel free to reach out if you have any questions!
 
 📧 Email: aviralsundli.com@gmail.com
+
 🔗 LinkedIn: linkedin.com/in/aviralsundli
