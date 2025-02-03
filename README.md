@@ -4,8 +4,9 @@ Hi ! I'm Aviral
 Welcome to my design porfolio. Here, you will find my projects/work done in Mechanical Design domain , as well as a few graphics design projects.
 I hope you enjoy exploring my projects!
 
-Feel free to reach out to me for any doubts :
+Note : The portfolio contains more than five pages. To view all pages, please click on "More Pages" at the bottom.
 
-email id - aviralsundli.com@gmail.com 
+Feel free to reach out if you have any questions!
 
-linkedin profile - https://www.linkedin.com/in/aviralsundli/
+📧 Email: aviralsundli.com@gmail.com
+🔗 LinkedIn: linkedin.com/in/aviralsundli
