@@ -10,4 +10,4 @@ Feel free to reach out if you have any questions!
 
 📧 Email: aviralsundli.com@gmail.com
 
-🔗 LinkedIn: linkedin.com/in/aviralsundli
+🔗 LinkedIn: https://www.linkedin.com/in/aviralsundli/
